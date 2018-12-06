@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## 鉴黄白丝照
 
 You can use the [editor on GitHub](https://github.com/brwqndl/wq/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
